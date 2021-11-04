@@ -2,4 +2,4 @@
 This is my exercise.
 
 # GIF
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/jLBnw6Z/ezgif-com-gif-maker.gif" alt="ezgif-com-gif-maker" border="0"></a>
+<a href="https://gfycat.com"><img src="https://gfycat.com/unhealthyeducatedasiaticgreaterfreshwaterclam" alt="CSS Icon with Typing Text" border="0"></a>
